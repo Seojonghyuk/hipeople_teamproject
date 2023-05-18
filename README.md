@@ -1,5 +1,6 @@
 # hipeople_teamproject
 
 
-Uploading KakaoTalk_20230510_174415681.mp4…
+
+https://github.com/Seojonghyuk/hipeople_teamproject/assets/126849369/3f3ca32e-dca5-4ef9-9788-e25a7603a793
 
